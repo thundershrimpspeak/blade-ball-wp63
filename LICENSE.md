@@ -1,4 +1,4 @@
-#  
+#  Experience blade ball like never before with professional Scripts for blade ball, the #1 Script. Includes teleport and custom skins for unbeatable
 
 
 
